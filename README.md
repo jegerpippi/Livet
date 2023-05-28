@@ -1,5 +1,5 @@
 # Livet
-... slik jeg ser det, er et spill. 
+... slik jeg ser det, er et [spill.](https://github.com/jegerpippi/Spillet) 
 
 Regler: 
 -Før hovedreglen legger likevel Pippi til at han kjenner til Conway's 'Game of Life', hvilket er et nullspiller-spill.
