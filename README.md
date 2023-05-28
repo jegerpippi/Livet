@@ -60,3 +60,10 @@ Uansett ble det fremtvunget en situasjon som ikke kan kalles annet enn 'umulig'.
 Likevel sitter jeg her. Ensom, sliten, sulten og med lyst på røyk.
 I en leilighet jeg har ramponert: 
 Fordi jeg ikke får lov å være alene, eller trygg, eller noe som helst.
+
+Men politiet dro sin vei. Rørte hverken meg, speeden, røyken eller hasjen min.
+(Det siste hadde jeg ikke engang. Gikk tom for lenge siden. Men vil gjerne ha!)
+
+Nesten uvirkelig å ha opplevd, at hverken speeden på bordet eller kniven i veggen ble nevnt engang.
+De ville bare sjekke en bekymring de hadde fått høre om. Heldigvis stemte den ikke.
+(Jo og nei vil vi nok alltid og aldri være enige om på den siste der.)
